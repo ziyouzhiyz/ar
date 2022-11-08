@@ -280,4 +280,14 @@ Sakai America,Inc. Construction Equipment.Sakai America's 300 Series rollers inc
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ar&contact&k=jcb+%D9%85%D8%B9%D8%AF%D8%A7%D8%AA+%D8%AB%D9%82%D9%8A%D9%84%D9%87)
 
-{{links}}
+* [پردازش ظرفیت سنگ شکن مخروطی](../36/%D9%BE%D8%B1%D8%AF%D8%A7%D8%B2%D8%B4%20%D8%B8%D8%B1%D9%81%DB%8C%D8%AA%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D9%85%D8%AE%D8%B1%D9%88%D8%B7%DB%8C.md)
+
+* [مرتب کردن بر اساس تسمه نقاله](../36/%D9%85%D8%B1%D8%AA%D8%A8%20%DA%A9%D8%B1%D8%AF%D9%86%20%D8%A8%D8%B1%20%D8%A7%D8%B3%D8%A7%D8%B3%20%D8%AA%D8%B3%D9%85%D9%87%20%D9%86%D9%82%D8%A7%D9%84%D9%87.md)
+
+* [آلات طحن الفوسفات](../40/%D8%A2%D9%84%D8%A7%D8%AA%20%D8%B7%D8%AD%D9%86%20%D8%A7%D9%84%D9%81%D9%88%D8%B3%D9%81%D8%A7%D8%AA.md)
+
+* [الشركة السعودية الأوروبية للمعدات ال](../36/%D8%A7%D9%84%D8%B4%D8%B1%D9%83%D8%A9%20%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9%20%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9%20%D9%84%D9%84%D9%85%D8%B9%D8%AF%D8%A7%D8%AA%20%D8%A7%D9%84.md)
+
+* [جک دستگاه شن و ماسه](../36/%D8%AC%DA%A9%20%D8%AF%D8%B3%D8%AA%DA%AF%D8%A7%D9%87%20%D8%B4%D9%86%20%D9%88%20%D9%85%D8%A7%D8%B3%D9%87.md)
+
+* [سنگ شکن برای سنگ فسفات](../37/%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%A8%D8%B1%D8%A7%DB%8C%20%D8%B3%D9%86%DA%AF%20%D9%81%D8%B3%D9%81%D8%A7%D8%AA.md)

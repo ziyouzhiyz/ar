@@ -150,4 +150,14 @@ E commerce en Algérie " Problèmes et opportunités " par MECHTA Mourad #Ecomme
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ar&contact&k=en+algerie+%D8%B3%D8%B9%D8%B1+%D8%A7%D9%84%D8%A9+%D8%A7%D9%84%D8%B7%D8%AD%D9%88%D9%86%D8%A9+%D8%A7%D9%84%D9%82%D9%87%D9%88%D8%A9)
 
-{{links}}
+* [صور لمكينه طحن الغلال القديمه](../36/%D8%B5%D9%88%D8%B1%20%D9%84%D9%85%D9%83%D9%8A%D9%86%D9%87%20%D8%B7%D8%AD%D9%86%20%D8%A7%D9%84%D8%BA%D9%84%D8%A7%D9%84%20%D8%A7%D9%84%D9%82%D8%AF%D9%8A%D9%85%D9%87.md)
+
+* [دستگاه های سنگ شکن سنگ مورد استفاده در هند](../39/%D8%AF%D8%B3%D8%AA%DA%AF%D8%A7%D9%87%20%D9%87%D8%A7%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B3%D9%86%DA%AF%20%D9%85%D9%88%D8%B1%D8%AF%20%D8%A7%D8%B3%D8%AA%D9%81%D8%A7%D8%AF%D9%87%20%D8%AF%D8%B1%20%D9%87%D9%86%D8%AF.md)
+
+* [الواردات من مطحنة](../37/%D8%A7%D9%84%D9%88%D8%A7%D8%B1%D8%AF%D8%A7%D8%AA%20%D9%85%D9%86%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9.md)
+
+* [فک سنگ شکن و کتابچه راهنمای کاربر](../40/%D9%81%DA%A9%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D9%88%20%DA%A9%D8%AA%D8%A7%D8%A8%DA%86%D9%87%20%D8%B1%D8%A7%D9%87%D9%86%D9%85%D8%A7%DB%8C%20%DA%A9%D8%A7%D8%B1%D8%A8%D8%B1.md)
+
+* [برق برای سنگ شکن سنگ](../36/%D8%A8%D8%B1%D9%82%20%D8%A8%D8%B1%D8%A7%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B3%D9%86%DA%AF.md)
+
+* [سان کریستوبال سنگ شکن](../36/%D8%B3%D8%A7%D9%86%20%DA%A9%D8%B1%DB%8C%D8%B3%D8%AA%D9%88%D8%A8%D8%A7%D9%84%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86.md)
