@@ -411,4 +411,14 @@ sbm services nigeria limited electrawelding.cone crusher type pyz sbm thr sbm pe
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ar&contact&k=%D9%83%D8%B3%D8%A7%D8%B1%D8%A9+%D8%B5%D8%AF%D9%85%D9%8A%D8%A9+sbm+np20)
 
-{{links}}
+* [شن و ماسه سیلیس غربالگری سنگ شکن ضربه ای](../38/%D8%B4%D9%86%20%D9%88%20%D9%85%D8%A7%D8%B3%D9%87%20%D8%B3%DB%8C%D9%84%DB%8C%D8%B3%20%D8%BA%D8%B1%D8%A8%D8%A7%D9%84%DA%AF%D8%B1%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B6%D8%B1%D8%A8%D9%87%20%D8%A7%DB%8C.md)
+
+* [اجابيات الكسارات](../39/%D8%A7%D8%AC%D8%A7%D8%A8%D9%8A%D8%A7%D8%AA%20%D8%A7%D9%84%D9%83%D8%B3%D8%A7%D8%B1%D8%A7%D8%AA.md)
+
+* [پردازش معدن سنگ معدن منگنز كسارة](../38/%D9%BE%D8%B1%D8%AF%D8%A7%D8%B2%D8%B4%20%D9%85%D8%B9%D8%AF%D9%86%20%D8%B3%D9%86%DA%AF%20%D9%85%D8%B9%D8%AF%D9%86%20%D9%85%D9%86%DA%AF%D9%86%D8%B2%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9.md)
+
+* [ماكينات اطباق البيض1000](../39/%D9%85%D8%A7%D9%83%D9%8A%D9%86%D8%A7%D8%AA%20%D8%A7%D8%B7%D8%A8%D8%A7%D9%82%20%D8%A7%D9%84%D8%A8%D9%8A%D8%B61000.md)
+
+* [رپیدز سرو سنگ شکن برای فروش](../40/%D8%B1%D9%BE%DB%8C%D8%AF%D8%B2%20%D8%B3%D8%B1%D9%88%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%A8%D8%B1%D8%A7%DB%8C%20%D9%81%D8%B1%D9%88%D8%B4.md)
+
+* [بهتر است آلومینیومی می تواند سنگ شکن](../37/%D8%A8%D9%87%D8%AA%D8%B1%20%D8%A7%D8%B3%D8%AA%20%D8%A2%D9%84%D9%88%D9%85%DB%8C%D9%86%DB%8C%D9%88%D9%85%DB%8C%20%D9%85%DB%8C%20%D8%AA%D9%88%D8%A7%D9%86%D8%AF%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86.md)

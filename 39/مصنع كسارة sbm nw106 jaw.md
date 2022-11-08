@@ -261,4 +261,14 @@ crusher mill SBM overlandconnection.sbm hammer mill 37 kw PE Jaw Crusher PE seri
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ar&contact&k=%D9%85%D8%B5%D9%86%D8%B9+%D9%83%D8%B3%D8%A7%D8%B1%D8%A9+sbm+nw106+jaw)
 
-{{links}}
+* [كسارات الصخور الفك المفترس التردد](../38/%D9%83%D8%B3%D8%A7%D8%B1%D8%A7%D8%AA%20%D8%A7%D9%84%D8%B5%D8%AE%D9%88%D8%B1%20%D8%A7%D9%84%D9%81%D9%83%20%D8%A7%D9%84%D9%85%D9%81%D8%AA%D8%B1%D8%B3%20%D8%A7%D9%84%D8%AA%D8%B1%D8%AF%D8%AF.md)
+
+* [جداول حفره دوره سنگ شکن](../40/%D8%AC%D8%AF%D8%A7%D9%88%D9%84%20%D8%AD%D9%81%D8%B1%D9%87%20%D8%AF%D9%88%D8%B1%D9%87%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86.md)
+
+* [استفسار عن شركة المعدات الثقيلة](../38/%D8%A7%D8%B3%D8%AA%D9%81%D8%B3%D8%A7%D8%B1%20%D8%B9%D9%86%20%D8%B4%D8%B1%D9%83%D8%A9%20%D8%A7%D9%84%D9%85%D8%B9%D8%AF%D8%A7%D8%AA%20%D8%A7%D9%84%D8%AB%D9%82%D9%8A%D9%84%D8%A9.md)
+
+* [كسارة الحجر آلة في الهند](../40/%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%A7%D9%84%D8%AD%D8%AC%D8%B1%20%D8%A2%D9%84%D8%A9%20%D9%81%D9%8A%20%D8%A7%D9%84%D9%87%D9%86%D8%AF.md)
+
+* [سنگ شکن کوچک برای استخراج از معادن برای فروش](../39/%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%DA%A9%D9%88%DA%86%DA%A9%20%D8%A8%D8%B1%D8%A7%DB%8C%20%D8%A7%D8%B3%D8%AA%D8%AE%D8%B1%D8%A7%D8%AC%20%D8%A7%D8%B2%20%D9%85%D8%B9%D8%A7%D8%AF%D9%86%20%D8%A8%D8%B1%D8%A7%DB%8C%20%D9%81%D8%B1%D9%88%D8%B4.md)
+
+* [فک سازنده سنگ شکن آفریقا](../39/%D9%81%DA%A9%20%D8%B3%D8%A7%D8%B2%D9%86%D8%AF%D9%87%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%A2%D9%81%D8%B1%DB%8C%D9%82%D8%A7.md)

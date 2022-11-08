@@ -411,4 +411,14 @@ agent for sbm barmac vsi cone crusher.barmac crusher sbm impfarrgarten.agent for
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ar&contact&k=%D9%85%D8%A7%D9%83%D9%8A%D9%86%D8%A9+%D9%83%D8%B3%D8%A7%D8%B1%D8%A9+vsi+sbm+lt7150+mobile)
 
-{{links}}
+* [اليات ثقيلة للبيع ياباني وكيل الاردن](../38/%D8%A7%D9%84%D9%8A%D8%A7%D8%AA%20%D8%AB%D9%82%D9%8A%D9%84%D8%A9%20%D9%84%D9%84%D8%A8%D9%8A%D8%B9%20%D9%8A%D8%A7%D8%A8%D8%A7%D9%86%D9%8A%20%D9%88%D9%83%D9%8A%D9%84%20%D8%A7%D9%84%D8%A7%D8%B1%D8%AF%D9%86.md)
+
+* [ركبة الطحونه حلا الترك يوتيوب](../38/%D8%B1%D9%83%D8%A8%D8%A9%20%D8%A7%D9%84%D8%B7%D8%AD%D9%88%D9%86%D9%87%20%D8%AD%D9%84%D8%A7%20%D8%A7%D9%84%D8%AA%D8%B1%D9%83%20%D9%8A%D9%88%D8%AA%D9%8A%D9%88%D8%A8.md)
+
+* [نوع صنعتی سنگ شکن هویج سیاه و سفید](../39/%D9%86%D9%88%D8%B9%20%D8%B5%D9%86%D8%B9%D8%AA%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D9%87%D9%88%DB%8C%D8%AC%20%D8%B3%DB%8C%D8%A7%D9%87%20%D9%88%20%D8%B3%D9%81%DB%8C%D8%AF.md)
+
+* [بازیافت سنگ شکن](../38/%D8%A8%D8%A7%D8%B2%DB%8C%D8%A7%D9%81%D8%AA%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86.md)
+
+* [إنتاج أكثر بنسبة 30٪ بأتمتة الكسارة](../38/%D8%A5%D9%86%D8%AA%D8%A7%D8%AC%20%D8%A3%D9%83%D8%AB%D8%B1%20%D8%A8%D9%86%D8%B3%D8%A8%D8%A9%2030%D9%AA%20%D8%A8%D8%A3%D8%AA%D9%85%D8%AA%D8%A9%20%D8%A7%D9%84%D9%83%D8%B3%D8%A7%D8%B1%D8%A9.md)
+
+* [سنگ شکن مخروطی یدکی سنگاپور](../38/%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D9%85%D8%AE%D8%B1%D9%88%D8%B7%DB%8C%20%DB%8C%D8%AF%DA%A9%DB%8C%20%D8%B3%D9%86%DA%AF%D8%A7%D9%BE%D9%88%D8%B1.md)

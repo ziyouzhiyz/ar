@@ -261,4 +261,14 @@ Course Grading System Students will be assigned grades (letters) for each course
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ar&contact&k=%D9%86%D8%B8%D8%A7%D9%85+%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%88%D9%85%D8%A7%D8%AA+%D9%88%D8%A7%D9%84%D8%AA%D8%AD%D9%83%D9%85+%D8%A7%D9%84%D9%84%D8%A7%D8%B3%D9%84%D9%83%D9%8A+sbm+icr)
 
-{{links}}
+* [طحونة العلف الجزائر](../37/%D8%B7%D8%AD%D9%88%D9%86%D8%A9%20%D8%A7%D9%84%D8%B9%D9%84%D9%81%20%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1.md)
+
+* [ساخت و ساز قیف کارخانه سنگ شکن سنگ](../40/%D8%B3%D8%A7%D8%AE%D8%AA%20%D9%88%20%D8%B3%D8%A7%D8%B2%20%D9%82%DB%8C%D9%81%20%DA%A9%D8%A7%D8%B1%D8%AE%D8%A7%D9%86%D9%87%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B3%D9%86%DA%AF.md)
+
+* [كرات للكرة مطحنة طحن التجربة دراسة عن تأثير](../38/%D9%83%D8%B1%D8%A7%D8%AA%20%D9%84%D9%84%D9%83%D8%B1%D8%A9%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9%20%D8%B7%D8%AD%D9%86%20%D8%A7%D9%84%D8%AA%D8%AC%D8%B1%D8%A8%D8%A9%20%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9%20%D8%B9%D9%86%20%D8%AA%D8%A3%D8%AB%D9%8A%D8%B1.md)
+
+* [طحن العمودي جمع الغبار](../37/%D8%B7%D8%AD%D9%86%20%D8%A7%D9%84%D8%B9%D9%85%D9%88%D8%AF%D9%8A%20%D8%AC%D9%85%D8%B9%20%D8%A7%D9%84%D8%BA%D8%A8%D8%A7%D8%B1.md)
+
+* [کربنات باریت سنگ شکن](../40/%DA%A9%D8%B1%D8%A8%D9%86%D8%A7%D8%AA%20%D8%A8%D8%A7%D8%B1%DB%8C%D8%AA%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86.md)
+
+* [تجهیزات مورد استفاده سنگ شکن زغال سنگ](../39/%D8%AA%D8%AC%D9%87%DB%8C%D8%B2%D8%A7%D8%AA%20%D9%85%D9%88%D8%B1%D8%AF%20%D8%A7%D8%B3%D8%AA%D9%81%D8%A7%D8%AF%D9%87%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B2%D8%BA%D8%A7%D9%84%20%D8%B3%D9%86%DA%AF.md)
