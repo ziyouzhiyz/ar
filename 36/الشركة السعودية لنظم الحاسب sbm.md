@@ -201,4 +201,14 @@ Sbm Management Services,LP McClellan,CA Business Page.SBM was founded in 1982 in
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ar&contact&k=%D8%A7%D9%84%D8%B4%D8%B1%D9%83%D8%A9+%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9+%D9%84%D9%86%D8%B8%D9%85+%D8%A7%D9%84%D8%AD%D8%A7%D8%B3%D8%A8+sbm)
 
-{{links}}
+* [لیست قیمت کارخانه سنگ شکنی زغال سنگ](../38/%D9%84%DB%8C%D8%B3%D8%AA%20%D9%82%DB%8C%D9%85%D8%AA%20%DA%A9%D8%A7%D8%B1%D8%AE%D8%A7%D9%86%D9%87%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%DB%8C%20%D8%B2%D8%BA%D8%A7%D9%84%20%D8%B3%D9%86%DA%AF.md)
+
+* [مدخل مزدوج عملية مطحنة الكرة](../40/%D9%85%D8%AF%D8%AE%D9%84%20%D9%85%D8%B2%D8%AF%D9%88%D8%AC%20%D8%B9%D9%85%D9%84%D9%8A%D8%A9%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9%20%D8%A7%D9%84%D9%83%D8%B1%D8%A9.md)
+
+* [محطم لبناء الطريق السريع](../39/%D9%85%D8%AD%D8%B7%D9%85%20%D9%84%D8%A8%D9%86%D8%A7%D8%A1%20%D8%A7%D9%84%D8%B7%D8%B1%D9%8A%D9%82%20%D8%A7%D9%84%D8%B3%D8%B1%D9%8A%D8%B9.md)
+
+* [ماكنات معمول](../38/%D9%85%D8%A7%D9%83%D9%86%D8%A7%D8%AA%20%D9%85%D8%B9%D9%85%D9%88%D9%84.md)
+
+* [محافظة شمال سيناء في كسارة الفك](../39/%D9%85%D8%AD%D8%A7%D9%81%D8%B8%D8%A9%20%D8%B4%D9%85%D8%A7%D9%84%20%D8%B3%D9%8A%D9%86%D8%A7%D8%A1%20%D9%81%D9%8A%20%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D8%A7%D9%84%D9%81%D9%83.md)
+
+* [دستگاه های سنگ شکن سی بی اس](../39/%D8%AF%D8%B3%D8%AA%DA%AF%D8%A7%D9%87%20%D9%87%D8%A7%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B3%DB%8C%20%D8%A8%DB%8C%20%D8%A7%D8%B3.md)

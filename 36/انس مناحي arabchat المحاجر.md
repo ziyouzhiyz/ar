@@ -211,4 +211,14 @@ chatting online with Arabs in the united kingdom Arab chat united kingdom the ne
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ar&contact&k=%D8%A7%D9%86%D8%B3+%D9%85%D9%86%D8%A7%D8%AD%D9%8A+arabchat+%D8%A7%D9%84%D9%85%D8%AD%D8%A7%D8%AC%D8%B1)
 
-{{links}}
+* [الدولوميت إنتاج معدات الإنتاج](../36/%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%88%D9%85%D9%8A%D8%AA%20%D8%A5%D9%86%D8%AA%D8%A7%D8%AC%20%D9%85%D8%B9%D8%AF%D8%A7%D8%AA%20%D8%A7%D9%84%D8%A5%D9%86%D8%AA%D8%A7%D8%AC.md)
+
+* [كم أسعار خلاطه مع مطحن](../39/%D9%83%D9%85%20%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1%20%D8%AE%D9%84%D8%A7%D8%B7%D9%87%20%D9%85%D8%B9%20%D9%85%D8%B7%D8%AD%D9%86.md)
+
+* [طراحی سنگ شکن سنگ تاثیر](../39/%D8%B7%D8%B1%D8%A7%D8%AD%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B3%D9%86%DA%AF%20%D8%AA%D8%A7%D8%AB%DB%8C%D8%B1.md)
+
+* [أنبوب مطحنة الكرة مواصفة نموذج](../39/%D8%A3%D9%86%D8%A8%D9%88%D8%A8%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9%20%D8%A7%D9%84%D9%83%D8%B1%D8%A9%20%D9%85%D9%88%D8%A7%D8%B5%D9%81%D8%A9%20%D9%86%D9%85%D9%88%D8%B0%D8%AC.md)
+
+* [برادران مکزیک سنگ شکن](../38/%D8%A8%D8%B1%D8%A7%D8%AF%D8%B1%D8%A7%D9%86%20%D9%85%DA%A9%D8%B2%DB%8C%DA%A9%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86.md)
+
+* [سعر مطحنة متر](../37/%D8%B3%D8%B9%D8%B1%20%D9%85%D8%B7%D8%AD%D9%86%D8%A9%20%D9%85%D8%AA%D8%B1.md)

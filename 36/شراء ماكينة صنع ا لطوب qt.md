@@ -190,4 +190,14 @@ Jan 9,2014.This new kind of small sized block forming machine is cheap &amp; dur
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ar&contact&k=%D8%B4%D8%B1%D8%A7%D8%A1+%D9%85%D8%A7%D9%83%D9%8A%D9%86%D8%A9+%D8%B5%D9%86%D8%B9+%D8%A7+%D9%84%D8%B7%D9%88%D8%A8+qt)
 
-{{links}}
+* [نیروهای در دستگاه های سنگ شکن فک](../38/%D9%86%DB%8C%D8%B1%D9%88%D9%87%D8%A7%DB%8C%20%D8%AF%D8%B1%20%D8%AF%D8%B3%D8%AA%DA%AF%D8%A7%D9%87%20%D9%87%D8%A7%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D9%81%DA%A9.md)
+
+* [دستگاه های سنگ شکن هند بازار](../38/%D8%AF%D8%B3%D8%AA%DA%AF%D8%A7%D9%87%20%D9%87%D8%A7%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D9%87%D9%86%D8%AF%20%D8%A8%D8%A7%D8%B2%D8%A7%D8%B1.md)
+
+* [سطل سنگ شکن برای خاکبرداریهای](../38/%D8%B3%D8%B7%D9%84%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%A8%D8%B1%D8%A7%DB%8C%20%D8%AE%D8%A7%DA%A9%D8%A8%D8%B1%D8%AF%D8%A7%D8%B1%DB%8C%D9%87%D8%A7%DB%8C.md)
+
+* [دستگاه های سنگ شکن تغذیه اندازه محصول اندازه ماسه های نفتی](../37/%D8%AF%D8%B3%D8%AA%DA%AF%D8%A7%D9%87%20%D9%87%D8%A7%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%AA%D8%BA%D8%B0%DB%8C%D9%87%20%D8%A7%D9%86%D8%AF%D8%A7%D8%B2%D9%87%20%D9%85%D8%AD%D8%B5%D9%88%D9%84%20%D8%A7%D9%86%D8%AF%D8%A7%D8%B2%D9%87%20%D9%85%D8%A7%D8%B3%D9%87%20%D9%87%D8%A7%DB%8C%20%D9%86%D9%81%D8%AA%DB%8C.md)
+
+* [غربل هزاز صين](../37/%D8%BA%D8%B1%D8%A8%D9%84%20%D9%87%D8%B2%D8%A7%D8%B2%20%D8%B5%D9%8A%D9%86.md)
+
+* [دراسه جدوى ماكينة سلك المواعين](../36/%D8%AF%D8%B1%D8%A7%D8%B3%D9%87%20%D8%AC%D8%AF%D9%88%D9%89%20%D9%85%D8%A7%D9%83%D9%8A%D9%86%D8%A9%20%D8%B3%D9%84%D9%83%20%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D9%86.md)

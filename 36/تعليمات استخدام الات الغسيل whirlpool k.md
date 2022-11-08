@@ -200,4 +200,14 @@ Products 1 50 of 695.Whirlpool Washer 220 240 volt.Whirlpool Washer lnstallation
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ar&contact&k=%D8%AA%D8%B9%D9%84%D9%8A%D9%85%D8%A7%D8%AA+%D8%A7%D8%B3%D8%AA%D8%AE%D8%AF%D8%A7%D9%85+%D8%A7%D9%84%D8%A7%D8%AA+%D8%A7%D9%84%D8%BA%D8%B3%D9%8A%D9%84+whirlpool+k)
 
-{{links}}
+* [دیدن طراحی کارت کارخانه سنگ شکن سنگ](../40/%D8%AF%DB%8C%D8%AF%D9%86%20%D8%B7%D8%B1%D8%A7%D8%AD%DB%8C%20%DA%A9%D8%A7%D8%B1%D8%AA%20%DA%A9%D8%A7%D8%B1%D8%AE%D8%A7%D9%86%D9%87%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B3%D9%86%DA%AF.md)
+
+* [سنگ شکن سنگ معدن طلا در امریکا](../40/%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B3%D9%86%DA%AF%20%D9%85%D8%B9%D8%AF%D9%86%20%D8%B7%D9%84%D8%A7%20%D8%AF%D8%B1%20%D8%A7%D9%85%D8%B1%DB%8C%DA%A9%D8%A7.md)
+
+* [کاشی سرامیک سنگ شکن](../38/%DA%A9%D8%A7%D8%B4%DB%8C%20%D8%B3%D8%B1%D8%A7%D9%85%DB%8C%DA%A9%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86.md)
+
+* [استفاده ساخته شده در دستگاه های سنگ شکن سنگ بزرگ صنعتی](../37/%D8%A7%D8%B3%D8%AA%D9%81%D8%A7%D8%AF%D9%87%20%D8%B3%D8%A7%D8%AE%D8%AA%D9%87%20%D8%B4%D8%AF%D9%87%20%D8%AF%D8%B1%20%D8%AF%D8%B3%D8%AA%DA%AF%D8%A7%D9%87%20%D9%87%D8%A7%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D8%B3%D9%86%DA%AF%20%D8%A8%D8%B2%D8%B1%DA%AF%20%D8%B5%D9%86%D8%B9%D8%AA%DB%8C.md)
+
+* [ماكنات جبس ليز](../38/%D9%85%D8%A7%D9%83%D9%86%D8%A7%D8%AA%20%D8%AC%D8%A8%D8%B3%20%D9%84%D9%8A%D8%B2.md)
+
+* [قطع كهربائية محطم](../39/%D9%82%D8%B7%D8%B9%20%D9%83%D9%87%D8%B1%D8%A8%D8%A7%D8%A6%D9%8A%D8%A9%20%D9%85%D8%AD%D8%B7%D9%85.md)

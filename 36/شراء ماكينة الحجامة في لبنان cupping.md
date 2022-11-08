@@ -300,4 +300,14 @@ Rizwan Anwar is on Facebook.Join Facebook to connect with Rizwan Anwar and other
 
 **نموذج الاستفسار:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ar&contact&k=%D8%B4%D8%B1%D8%A7%D8%A1+%D9%85%D8%A7%D9%83%D9%8A%D9%86%D8%A9+%D8%A7%D9%84%D8%AD%D8%AC%D8%A7%D9%85%D8%A9+%D9%81%D9%8A+%D9%84%D8%A8%D9%86%D8%A7%D9%86+cupping)
 
-{{links}}
+* [كسارة فوسفات ابوظرظور](../37/%D9%83%D8%B3%D8%A7%D8%B1%D8%A9%20%D9%81%D9%88%D8%B3%D9%81%D8%A7%D8%AA%20%D8%A7%D8%A8%D9%88%D8%B8%D8%B1%D8%B8%D9%88%D8%B1.md)
+
+* [طرح از گیاه خرد کردن سنگ](../36/%D8%B7%D8%B1%D8%AD%20%D8%A7%D8%B2%20%DA%AF%DB%8C%D8%A7%D9%87%20%D8%AE%D8%B1%D8%AF%20%DA%A9%D8%B1%D8%AF%D9%86%20%D8%B3%D9%86%DA%AF.md)
+
+* [رایگان دستگاه های سنگ شکن فک سنگ](../40/%D8%B1%D8%A7%DB%8C%DA%AF%D8%A7%D9%86%20%D8%AF%D8%B3%D8%AA%DA%AF%D8%A7%D9%87%20%D9%87%D8%A7%DB%8C%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%D9%81%DA%A9%20%D8%B3%D9%86%DA%AF.md)
+
+* [من می خواهم به خرید بیل مکانیکی کارخانه سنگ شکنی](../40/%D9%85%D9%86%20%D9%85%DB%8C%20%D8%AE%D9%88%D8%A7%D9%87%D9%85%20%D8%A8%D9%87%20%D8%AE%D8%B1%DB%8C%D8%AF%20%D8%A8%DB%8C%D9%84%20%D9%85%DA%A9%D8%A7%D9%86%DB%8C%DA%A9%DB%8C%20%DA%A9%D8%A7%D8%B1%D8%AE%D8%A7%D9%86%D9%87%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%DB%8C.md)
+
+* [نمایندگی مجاز و فروش دستگاه سنگ شکن چکشی](../37/%D9%86%D9%85%D8%A7%DB%8C%D9%86%D8%AF%DA%AF%DB%8C%20%D9%85%D8%AC%D8%A7%D8%B2%20%D9%88%20%D9%81%D8%B1%D9%88%D8%B4%20%D8%AF%D8%B3%D8%AA%DA%AF%D8%A7%D9%87%20%D8%B3%D9%86%DA%AF%20%D8%B4%DA%A9%D9%86%20%DA%86%DA%A9%D8%B4%DB%8C.md)
+
+* [شحن طواحين الخام](../37/%D8%B4%D8%AD%D9%86%20%D8%B7%D9%88%D8%A7%D8%AD%D9%8A%D9%86%20%D8%A7%D9%84%D8%AE%D8%A7%D9%85.md)
